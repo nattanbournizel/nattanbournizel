@@ -17,7 +17,8 @@ Je m'apelle nattan bournizel et j'espère que tu apprendras plus sur moi :smirk:
 
 - :football: J'apprécie et respecte tout les types de sport, sauf le ping pong:monkey:
 
-- :video_game: Je passe énormément de temps sur les jeux (beaucoup trop), et mon style est celui des jeux tryhards <div style="width:100%;height:0;padding-bottom:92%;position:relative;"><iframe src="https://giphy.com/embed/KhZ2e5OExUnug" width="250px" height="250px" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/KhZ2e5OExUnug">via GIPHY</a></p>
+- :video_game: Je passe énormément de temps sur les jeux (beaucoup trop), et mon style est celui des jeux tryhards 
+![gif](praise.gif)
 
 **3. Me contacter**
 
