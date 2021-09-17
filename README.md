@@ -2,7 +2,7 @@
 
 
 Si tu es ici c'est que tu es au bon endroit (**fuis vite**).
-![Alt Text](Snapchat-846916773.jpg)
+![photo de moi](photo.jpg)
 Je m'apelle nattan bournizel et j'espère que tu apprendras plus sur moi :smirk:
 
 **1. Mes études**
@@ -22,6 +22,8 @@ Je m'apelle nattan bournizel et j'espère que tu apprendras plus sur moi :smirk:
 **3. Me contacter**
 
 - 💬 Si jamais vous avez des questions n'hésitez pas :sunglasses: (même si je n'aurais preque jamais la réponse  )
+
+- Vous pouvez toujours me suivre sur mon compte professionnel Linkedin : [Cliquez ici :)](https://www.linkedin.com/in/nattan-bournizel-a558b9207/)
 
 
 
